@@ -1,3 +1,3 @@
-- Hey there i am @aka-bot2
+- Hey there I am Akashh
 - Contact me if interested in talking memes or making cool stuff
 - K,Bye.
